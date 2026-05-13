@@ -1,4 +1,4 @@
-# 
+# Get the ultimate liquidation sniper bot with liquidation sniper bot high-frequency Bot - take-profit and grid-trading. Featuring take-profit and grid-trading, it's the best choice
 
 
 
